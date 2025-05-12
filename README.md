@@ -22,7 +22,7 @@
 
 
 
-#### Hello, I'm Meidhika Nawa Sapta
+#### Hello, I'm Meidhika Nawa Sapta!
 
 
 ##### 🌐 Socials:
